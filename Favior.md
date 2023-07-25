@@ -1,8 +1,8 @@
 Favior VSinger
---------------
+===============
 
 Alto, Contralto
-===============
+---------------
 
 * [Rene Channel ⧸ 龍ヶ崎リン](https://www.youtube.com/@Rene_Ryugasaki)
 * [響かさね ⧸ Hibiki Kasane](https://www.youtube.com/@HibikiKasane)
@@ -19,7 +19,7 @@ Alto, Contralto
 * [一夜一世](https://www.youtube.com/@HitoyoHitoyo)
 
 Mezzo
-=====
+-----
 
 * [瀬戸乃とと](https://www.youtube.com/@SetonoToto)
 * [戌亥とこ -Inui Toko-](https://www.youtube.com/@InuiToko)
@@ -59,7 +59,7 @@ Mezzo
 * [稍 麦 - yayamugi -](https://www.youtube.com/@yayamugi222)
 * [來-Ray-](https://www.youtube.com/@rayray_429)
 * [夢見とびら - Yumemi Tobira - 很鬧](https://www.youtube.com/@yumemitobira)
-* [薄荷あをい - hatsuka awoi -](ttps://www.youtube.com/@awoi_hatsuka)
+* [薄荷あをい - hatsuka awoi -](https://www.youtube.com/@awoi_hatsuka)
 * [Cecil Ch.月城セシル -> 機械人迷](https://www.youtube.com/@CecilCh)
 * [Canna Channel ⧸ 茜音カンナ【ななしいんく】](https://www.youtube.com/@Canna_Akane)
 * [Sei Channel ⧸ 橙里セイ【ななしいんく】](https://www.youtube.com/@Sei_Touri)
@@ -72,7 +72,7 @@ Mezzo
 * [狼朗ハツキ - Rourou Hatsuki - -> 不穩](https://www.youtube.com/@rou_hatsuki)
 
 Dramatic
-========
+--------
 
 * [HACHI](https://www.youtube.com/@HACHIVSinger)
 * [くろくも](https://twitcasting.tv/kurokumo_01)

@@ -17,7 +17,6 @@ Alto, Contralto
 * [魔光リサ - Lisa Makoh -](https://www.youtube.com/@Lisa_Makoh)
 * [G.I.N](https://www.youtube.com/@g.i.n)
 * [一夜一世](https://www.youtube.com/@HitoyoHitoyo)
-* [YUKIHIME【Marble-IV】](https://www.youtube.com/@yukihimemarble-iv3177)
 
 Mezzo
 -----
@@ -31,6 +30,7 @@ Mezzo
 * [道明寺ここあ ⧸ COCOA DOMYOJI -> 二代目](https://www.youtube.com/@COCOADOMYOJI)
 * [UTANO ch. 白玖ウタノ](https://www.youtube.com/@UTANOch)
 * [海月くらげ](https://twitcasting.tv/c:jelly_fish)
+* [YUKIHIME【Marble-IV】](https://www.youtube.com/@yukihimemarble-iv3177)
 * [WON](https://www.youtube.com/@won4411)
 * [御神楽すずめ ⧸ Mikagura Suzume](https://www.youtube.com/@suzume_mikagura)
 * [Ratio Yuires](https://www.youtube.com/@Ratio_Yuires)

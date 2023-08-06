@@ -17,6 +17,7 @@ Alto, Contralto
 * [魔光リサ - Lisa Makoh -](https://www.youtube.com/@Lisa_Makoh)
 * [G.I.N](https://www.youtube.com/@g.i.n)
 * [一夜一世](https://www.youtube.com/@HitoyoHitoyo)
+* [YUKIHIME【Marble-IV】](https://www.youtube.com/@yukihimemarble-iv3177)
 
 Mezzo
 -----

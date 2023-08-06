@@ -71,7 +71,7 @@ Mezzo
 * [メラ・アカル　MelaakaruVtuber](https://www.youtube.com/@mela_akaru)
 * [狼朗ハツキ - Rourou Hatsuki - -> 不穩](https://www.youtube.com/@rou_hatsuki)
 
-Dramatic
+Dramatic & higher
 --------
 
 * [HACHI](https://www.youtube.com/@HACHIVSinger)

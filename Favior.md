@@ -89,3 +89,4 @@ Dramatic & higher
 * [五木つかさ - itsuki tsukasa -](https://www.youtube.com/@itk_tks_)
 * [Sakura CH.餅々さくら](https://www.youtube.com/@Sakura_mochimochi)
 * [Chaco ch. 閻魔ちゃこ](https://www.youtube.com/@chacoch.5786)
+* [鈍色聴 ⧸ Yurushi Nibiiro](https://www.youtube.com/@Yurushi_nibiiro)

@@ -17,7 +17,8 @@ Alto, Contralto
 * [魔光リサ - Lisa Makoh -](https://www.youtube.com/@Lisa_Makoh)
 * [G.I.N](https://www.youtube.com/@g.i.n)
 * [一夜一世](https://www.youtube.com/@HitoyoHitoyo)
-* [うらめちゃんねる /あおぎり高校 -> 觀察中](https://www.youtube.com/@urame0711)
+* [多々星 カイリ](https://www.youtube.com/@Kairi_Tadase)
+* [うらめちゃんねる /あおぎり高校](https://www.youtube.com/@urame0711)
 
 Mezzo
 -----

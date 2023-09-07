@@ -46,7 +46,7 @@ Mezzo
 * [IZUMI _CHANNEL](https://www.youtube.com/@izumi_channel771)
 * [椎名かいね](https://www.youtube.com/@kaineneko)
 * [Shitora ch. 涼風しとら](https://www.youtube.com/@SuzukazeShitora)
-* [紗蔴 - Shama](https://www.youtube.com/@sha_mm_)
+* [叶瀬しゃま -  Kanase Shama -> 不要一直改名字啊](https://www.youtube.com/@sha_mm_)
 * [酔シグレ: Yoishigure](https://www.youtube.com/@yoishigure9304)
 * [Mokoko Ch ＊ 萌中もここ](https://www.youtube.com/@mokoko_monaka)
 * [Tyra Ch. 宙月ティラ](https://www.youtube.com/@SoradukiTyra)
